@@ -1,1 +1,2 @@
-# World-is-our-canvas-3
+# -THE-WORLD-IS-OUR-CANVAS---PART-3.
+ THE WORLD IS OUR CANVAS - PART 3.
